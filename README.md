@@ -1,1 +1,1 @@
-Currently, I’m a senior Electrical and Electronic Engineering student at Bilkent University in Ankara, Turkey, and an undergraduate researcher in UMRAM. Meanwhile, I am interested in applications of Electronics engineering in the field of Neuroscience. In addition to that, I would like to pursue an academic career in Neuroscience.
+Currently, I’m a senior Electrical and Electronic Engineering student at Bilkent University in Ankara, Turkey, and an undergraduate researcher in UMRAM.
