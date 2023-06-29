@@ -1,1 +1,1 @@
-Currently, I’m a senior Electrical and Electronic Engineering student at Bilkent University in Ankara, Turkey, and an undergraduate researcher in UMRAM.
+I'm an Electrical and Electronic Engineeringeer and have graduate from Bilkent University in Ankara, Turkey
